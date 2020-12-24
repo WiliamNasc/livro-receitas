@@ -1,4 +1,4 @@
-# Pavê de chocolate :astonished:
+# Pavê de chocolate :satisfied: :chocolate_bar:
 
  ### Ingredientes:
 
